@@ -1,3 +1,0 @@
-# Designo
-# Designo
-# Designo
